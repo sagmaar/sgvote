@@ -7,3 +7,6 @@ SAMPLE IMAGES ARE GIVEN IN LINK
 
 
 [ADMIN IMAGES](https://docs.google.com/document/d/12ZJhS-xcs2cW5QB-VQUUJYhVluY4Pdy2KysCQ6w25fk/edit?usp=sharing)
+
+
+completed @ SGRDRV- SGRONE!# (SG VOTE) Sep.17
